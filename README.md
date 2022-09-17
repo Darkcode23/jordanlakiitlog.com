@@ -1,0 +1,2 @@
+# jordanlakiitlog.com
+euvenkaintite
